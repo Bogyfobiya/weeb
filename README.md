@@ -1,5 +1,1 @@
 # weeb
-
-
-
-zdraste weeb
